@@ -1,0 +1,1 @@
+# resumo-tipos-servi-o-nuvem
